@@ -11,4 +11,6 @@
 ︵‿︵‿୨♡୧‿︵‿︵
  
  >check the project here ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა : [project-03-website-background-video](https://project-03-website-brackground-video.netlify.app/)
+>
+>The videos used as background were extracted from this video from the YouTube platform: [Benjamín Valenzuela Wallis - Fauna de Chile](https://www.youtube.com/watch?v=K6d0BWmRIAk&t=72s), leave your like for the beautiful work ( ๑ ˃ᴗ˂)و ♡.
 >>Arekussa ♡✧( •⌄• )
